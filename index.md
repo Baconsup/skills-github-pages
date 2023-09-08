@@ -1,4 +1,4 @@
 ---
-title: Welcome to my blog
+title: Wanna join my free giftcard giveaway
 ---
 
